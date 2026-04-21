@@ -1,7 +1,8 @@
 
 
-**Name:** MARIYAM FATIMA
-
+**Name:** MARIYAM FATIMA 
+https://github.com/Mariyam15/Seamless-Image-Fusion-System-
+# Seamless-Image-Fusion-System
 
 ---
 
